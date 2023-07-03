@@ -1,3 +1,3 @@
 Hai Kak👋
-Cantik & Ganteng adalah ilusi
+Cantik & Ganteng
 chat Nomor Saya Aja Kalo Mau numpang naro shortcode 
